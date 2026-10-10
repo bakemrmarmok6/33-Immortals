@@ -239,4 +239,4 @@ Support can be found on the official website, where you can access documentation
 Join the revolution and download **33 Immortals** today for a thrilling cooperative experience that you won't want to miss!
 
 ---
-**Last updated:** 2026-10-10 13:24:59 UTC
+**Last updated:** 2026-10-10 18:19:24 UTC
